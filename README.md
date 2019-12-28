@@ -6,7 +6,7 @@ LOL
 
 # SCSSSSSSSS
 
-# Hello Hindreen
+# Hello Omar
 
 ![alt text](https://media.giphy.com/media/Vuw9m5wXviFIQ/giphy.gif)
 
